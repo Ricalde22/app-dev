@@ -15,6 +15,7 @@ I like this movie because it has *adventure, friendship, magic, and exciting mom
 
 My Favorite Quote
 > "It is our choices that show what we truly are, far more than our abilities."
+> I enjoy watching this movie because it makes me feel inspired and entertained.
 
 Movie Information
 | Category | Information |
